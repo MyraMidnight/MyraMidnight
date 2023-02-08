@@ -8,7 +8,7 @@
 - Webstuff and Programming
 - Wikis and documentation! (made a wiki about 🐹 [guinea pigs](https://grisanaggar.myramidnight.com/doku.php)!)
 - Music: 
-  >P!nk, MIKA, Sia, Caravan Palace, Ásgeir Trausti, Lana Del Rey, Third Day, Lady Gaga, Brad Paisley, Icelandic folk songs...
+  >P!nk, MIKA, Sia, Caravan Palace, Ásgeir Trausti, Lana Del Rey, Third Day, Lady Gaga, Brad Paisley, Yoshida Brothers, Icelandic folk songs...
 - Movies
   >The Addams family (1991,1993), Alien (and any film from that franchise), Interview with the Vampire, anything M. Night Shyamalan, anything Spiderman
 - Books/Comics
